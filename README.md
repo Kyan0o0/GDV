@@ -10,6 +10,7 @@ is de odracht van het muntje en het balletje die het allebij doen
 
 dit is het huisje
 
-![Gdv](https://github.com/user-attachments/assets/acb9fc70-bffa-4968-af43-f77c0763b470)
+![Gdv huisje](https://github.com/user-attachments/assets/720583d4-5aac-423a-8749-476993389cfd)
+
 
 het een mooi huisje gemaakt met een zon erbij 
